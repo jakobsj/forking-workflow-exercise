@@ -12,3 +12,8 @@
 - 1 teaspoon honey (optional, adjust to taste)
 - Salt and pepper to taste
 - Mixed greens or arugula (optional, for serving)
+
+## Instructions
+
+1. **Prepare**
+2. **Serve**
